@@ -1,0 +1,1 @@
+# veri-tipi-donusumu-ve-kac-s-dizini
